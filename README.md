@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [https://joydajunspacecraft.github.io/YuelyuJi.github.io/YuelyuJi.github.io/cv/](https://joydajunspacecraft.github.io/YuelyuJi.github.io/YuelyuJi.github.io/cv/)
 
-- ⚡ Fun fact **I am preparing marathon in Pittsburgh in May 2024**
+- ⚡ Fun fact **I am finished 2:17:00 in Pittsburgh marathon at May 2024**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
